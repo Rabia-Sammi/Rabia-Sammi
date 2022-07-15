@@ -8,5 +8,5 @@
 - 
       -> rabia.sammi@gmail.com
       -> https://www.upwork.com/freelancers/~019780cfe5e9a6a151
-      -> www.linkedin.com/in/rabia-samm
+      -> www.linkedin.com/in/rabia-sammi
       -> 7beecreation@gmail.com
